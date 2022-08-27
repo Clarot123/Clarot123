@@ -5,3 +5,4 @@
 - 📫 How to reach me ...
 - 🇲🇦 I am Moroccan.
 - 👎 I don't sponsor pride 🏳️‍🌈
+- ☝ If you are gay don't enter my profile
