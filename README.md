@@ -1,4 +1,4 @@
-- 👋 Hi, We are @Clarot123
+- 👋 Hi, We are @Vayrot.
 - 📫 If you want to contact us go to https://clarot345.github.io/Vayrot/.
 - 👎 We don't sponsor pride 🏳️‍🌈
 - ☝ If you are gay don't enter my profile
