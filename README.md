@@ -3,4 +3,4 @@
 - 👎 We don't sponsor pride 🏳️‍🌈
 - ☝ If you are gay don't enter our organisation
 - 👉 Visit our official website at https://clarot345.github.io/Vayrot/
-
+- 👉 You can sign up in Vayrot at https://clarot345.github.io/vayrot-signup/
